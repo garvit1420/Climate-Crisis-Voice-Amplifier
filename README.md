@@ -1,1 +1,0 @@
-# Climate-Crisis-Voice-Amplifier
